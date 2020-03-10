@@ -1,4 +1,4 @@
 # Hello World
 Qa Tojtech team
 
-Ican collaborate also here? Ozoda
+I can collaborate also here? Ozoda
